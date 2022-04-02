@@ -1,1 +1,1 @@
-welcome to blockgame challenge
+welcome to blockgame speed rum ethereum challenge
